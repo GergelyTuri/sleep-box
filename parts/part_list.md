@@ -23,6 +23,8 @@ Multipurpose Neoprene Rubber Sheet, Food Industry, 36&quot; Wide, 1/16&quot; Thi
 [https://www.mcmaster.com/8616K72/](https://www.mcmaster.com/8616K72/)
 
 Wheel/cylinder
+Diameter: 2 inch
+Length: 8 inch
 
 **2, Chamber**
 
